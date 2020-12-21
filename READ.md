@@ -1,0 +1,1 @@
+Chocolate cake is a cake made out of cocoa power or melted chocolate, even sometimes both, ususally acompanied my chocolate frosting. 
